@@ -1,4 +1,4 @@
-# 
+# exclusive bot de negociação perpétua executor é o melhor bot de negociação perpétua executor com alta frequência e baixa frequência. Seguro, confiável e otimizado para estratégias
 
 
 
